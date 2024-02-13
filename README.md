@@ -5,7 +5,6 @@
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/4123a8a0-faf1-439c-93f7-caefb3dc80ef)
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/34492fcb-bf42-4f24-aa17-0a7c01f43da1)
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/1c4bdc21-c10d-489c-b502-9c1566ab6ed4)
-﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/ecb6ff7c-a77a-4694-bb81-670f419b5afb)
 
 
