@@ -1,4 +1,4 @@
-✧･ﾟ:<3 Leave me a message on Guestbook and I'll shower you with kisses if I spot ya in the wild! (୨୧ ❛ᴗ❛)✧
+✧･ﾟ:<3 Leave me a message on Guestbook and if you come up to me I'll shower you with kisses! (୨୧ ❛ᴗ❛)✧
 ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/e24da1b4-b18d-435c-8511-b88a340d6758)
 ![image](https://github.com/ForeverTainted/ForeverTainted/assets/155183784/4ef0a466-71e8-41ba-99b0-06e0d1779cc6)
